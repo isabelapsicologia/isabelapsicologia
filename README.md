@@ -1,6 +1,6 @@
 ### Olá! Sou a Isabela! 🤗
 
-👩🏿Pronomes: Ela/Dela
+👩🏿Pronomes: Ela/Dela/She/Her
 
 🎓Graduação em Psicologia
 
