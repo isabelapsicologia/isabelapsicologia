@@ -1,4 +1,4 @@
-### Olá! Sou a Isabela! 🤗
+### Olá! Eu sou a Isabela!
 
 👩🏿Pronomes: Ela/Dela/She/Her
 
