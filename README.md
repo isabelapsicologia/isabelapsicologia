@@ -4,8 +4,6 @@
 
 💜 Cinéfila & Bibliófila
 
-📚 Todo dia aprendo algo novo
-
 🎓 Graduação em Psicologia
 
 🎓 MBA em Gestão de Pessoas
