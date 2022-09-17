@@ -4,9 +4,9 @@
 
 ❤️ Cinéfila & Bibliófila
 
-📚 Graduação em Psicologia
+🎓 Graduação em Psicologia
 
-📚 MBA em Gestão de Pessoas
+🎓 MBA em Gestão de Pessoas
 
 💼 Tech Recruiter
 
