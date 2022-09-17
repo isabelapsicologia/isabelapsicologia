@@ -1,12 +1,12 @@
 ### Olá! Como vai? Sou a Isabela!
 
-😊 Pronomes: Ela/Dela/She/Her
+👩🏿 Pronomes: Ela/Dela/She/Her
 
-💜 Cinéfila & Bibliófila
+❤️ Cinéfila & Bibliófila
 
-🎓 Graduação em Psicologia
+📚 Graduação em Psicologia
 
-🎓 MBA em Gestão de Pessoas
+📚 MBA em Gestão de Pessoas
 
 💼 Tech Recruiter
 
