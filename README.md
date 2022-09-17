@@ -1,6 +1,6 @@
-### Olá! Como vai? Eu sou a Isabela!
+### Olá! Como vai? Sou a Isabela!
 
-👩🏿 Pronomes: Ela/Dela/She/Her
+😊 Pronomes: Ela/Dela/She/Her
 
 💜 Cinéfila & Bibliófila
 
