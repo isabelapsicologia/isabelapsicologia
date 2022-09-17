@@ -1,12 +1,16 @@
-### Olá! Eu sou a Isabela!
+### Olá! Como vai? Eu sou a Isabela!
 
-👩🏿Pronomes: Ela/Dela/She/Her
+👩🏿 Pronomes: Ela/Dela/She/Her
 
-🎓Graduação em Psicologia
+💜 Cinéfila & Bibliófila
 
-🎓MBA em Gestão de Pessoas
+📚 Todo dia aprendo algo novo
 
-💼Tech Recruiter
+🎓 Graduação em Psicologia
+
+🎓 MBA em Gestão de Pessoas
+
+💼 Tech Recruiter
 
 [![E-mail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](https://psicologia.pereiravieira@gmail.com)
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://linkedin.com/in/isabelapereiravieira)
